@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **Front-end Development**
 
-- 📫 How to reach me **kalbehaider92@icloud.com**
+- 📫 How to reach me **kalbehaider11@gmail.com**
 
 - ⚡ Fun fact **Knowledge Is Power**
 
